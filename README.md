@@ -52,4 +52,4 @@ How do children learn according to Piaget?
 🙋‍♂️ Author
 Benjamin Obi
 
-LinkedIn: [@yourlinkedin](https://www.linkedin.com/in/benjamin-obi/)
+LinkedIn: [Benjamin Obi](https://www.linkedin.com/in/benjamin-obi/)
